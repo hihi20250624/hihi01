@@ -21,7 +21,7 @@
 
 点击访问：<a href="https://hl377.pages.dev/">黑料社app</a>
 
-点击访问：<a href="https://hl437.pages.dev/"暗黑爆料免费入口怎么打开</a>
+点击访问：<a href="https://hl437.pages.dev/">暗黑爆料免费入口怎么打开</a>
 
 点击访问：<a href="https://dy8-23.pages.dev/"> 抖音成人版抖音</a>
 
